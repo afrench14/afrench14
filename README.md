@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @afrench14 (logan)
+- 👀 I’m interested in college work
+- 🌱 I’m currently learning object oriented
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me? dont
